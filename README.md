@@ -3,4 +3,4 @@ Assignment
 Blog: https://www.diaveldheeraj.blogspot.com 
 Newsletter: https://diaveldheeraj.blogspot.com/2023/09/email-newsletter.html?
 Social Media: https://diaveldheeraj.blogspot.com/2023/09/blog-post.html?
-Fb: hhtps://fb.com/diaveldheeraj
+Fb: https://fb.com/diaveldheeraj
